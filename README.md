@@ -1,2 +1,0 @@
-# davidcritzman.github.io
-EPK
